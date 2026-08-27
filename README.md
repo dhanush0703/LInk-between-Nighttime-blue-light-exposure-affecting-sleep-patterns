@@ -1,0 +1,2 @@
+# LInk-between-Nighttime-blue-light-exposure-affecting-sleep-patterns
+This study is designed to be applicable to all age groups, from adolescents and young adults to middle-aged and older adults. However, it will focus particularly on individuals aged 19–23, a demographic with exceptionally high evening screen engagement, to explore how blue light exposure from multiple devices impacts their sleep patterns.
